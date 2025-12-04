@@ -1,0 +1,1 @@
+file act ini merupakan kumpulan activity rpl2 dari pertemuan 1 hingga pertemuan 7
